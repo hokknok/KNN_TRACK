@@ -1,1 +1,1 @@
-# hak_CP_FINAL_KINBERY_2021_DigNinj
+# hak_CP_FINAL_2021_DigNin
